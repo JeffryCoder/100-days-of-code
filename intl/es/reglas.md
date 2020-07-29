@@ -6,7 +6,7 @@
 
 #### Fecha de inicio
 
-25 de junio de 2016. [ponga su nombre aquí]
+28 de julio de 2020. [Jeffry A. Sánchez Fco.]
 
 ## Reglas adicionales
 
